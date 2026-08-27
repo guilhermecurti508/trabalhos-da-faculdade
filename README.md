@@ -131,7 +131,7 @@ Se você gosta de tecnologia, programação, inteligência artificial ou empreen
 
 📱 **WhatsApp:** (https://wa.me/11980519504)
 
-
+📧 E-mail: (guilhermecurti508@gmail.com)
 
 ---
 
